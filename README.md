@@ -29,8 +29,7 @@
 
 ## 🤝 Conecta conmigo
 📫 Puedes encontrarme aquí:
-- GitHub: https://github.com/Veko1007
-
+- Correo: vreynosoc5754@gmail.com
 ---
 
 ## ⚡ Fun fact
